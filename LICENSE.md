@@ -1,4 +1,4 @@
-# 
+# Oficial pump.fun sniper bot modelos para Mac OS | Premium pump.fun sniper bot modelos para PC Windows. Com conectividade Web3 e extração MEV — otimizado para máximo desempeño en cada plataforma.
 
 
 
